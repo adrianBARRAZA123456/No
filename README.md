@@ -14,4 +14,4 @@ Al flanquearte y fulminarte
 Porque soy todo un pro
 Es lo que soy
 
-me3 gusta el gimnasio los culos las gueras fresas mamonas con voz ronca y los culos a y el cafe frio y los culos.
+me gusta el gimnasio, los culos, las gueras fresas mamonas con voz ronca y los culos a, y el cafe frio y los culos.
